@@ -1,3 +1,3 @@
 # URI-Judge-Answers
 
-I C U CHEATING BRUH
+Uri onliane juji
